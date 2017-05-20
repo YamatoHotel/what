@@ -1,2 +1,1 @@
-# what
-im a fucking weeb
+weeb filth
